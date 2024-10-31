@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @notepadenthusiast
+- 👀 I’m interested in notepad coding
+- 🌱 I’m currently learning .cmd
+- 💞️ I’m looking to collaborate on nothing
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: im annoying
